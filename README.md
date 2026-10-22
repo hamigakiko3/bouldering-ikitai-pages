@@ -1,0 +1,1 @@
+# bouldering-ikitai-pages
